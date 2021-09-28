@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rodrifernandez7
+- 👋 Hi, I’m Rodrigo Fernandez Moreno.
 - 👀 I’m interested in web development. I love new challenges and i never get tired of learning new things.
 - 💞️ I’m looking to improve my professional development accompanied by my learned skills.
 - 📫 How to reach me: ferandezmrodrigo7@gmail.com
